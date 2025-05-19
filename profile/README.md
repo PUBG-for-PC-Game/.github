@@ -6,6 +6,7 @@ PUBG has easily eclipsed the reach of Fortnite and offered its planetary audienc
 
 ## [➤ ► 👉 PUBG For PC](http://alipc.pro/)
 
+### How To Install:
 
 1- Begin by installing BlueStacks on your PC.
 
